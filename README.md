@@ -10,6 +10,6 @@ Features
 - Answer questions
 - Simple and user-friendly interface
 
-Created by
+Created by GOODLUCK 
 
-Goody by goodluck 
+Goody by a team 
